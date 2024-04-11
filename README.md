@@ -1,0 +1,1 @@
+It is a software designed to revolutionize the way students can approach learning and studying. With its user- friendly interface and unique features, StudyBuddy aims to enhance students’ academic performance and productivity. 
